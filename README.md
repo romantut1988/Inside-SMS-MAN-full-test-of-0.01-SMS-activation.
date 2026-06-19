@@ -1,4 +1,4 @@
-#[хInside-SMS-MAN-full-test-of-0.01-SMS-activation.](https://sms-man.com/?ref=romantut)
+# [Inside-SMS-MAN-full-test-of-0.01-SMS-activation.](https://sms-man.com/?ref=romantut)
 # SMS-Activate Review: Inside SMS-MAN Full Test of $0.01 SMS Activation in 2026
 
 ## 1. Intro
